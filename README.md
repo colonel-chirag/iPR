@@ -4,6 +4,11 @@ Syllabus
 
 ![image](https://user-images.githubusercontent.com/59536110/180279967-30640d17-98b9-4429-9588-5f0ea4d83148.png)
 
+Sessional Question Papers
+
+![IMG_20220726_170657](https://user-images.githubusercontent.com/93399136/180997254-7da61bfd-0b12-4b2b-88b4-2694f21549ed.jpg)
+
+
 Content _:
 
 ![image](https://user-images.githubusercontent.com/59536110/180280637-1ba4d0b1-6468-4d0e-9d43-08dd50035a2e.png)
