@@ -1,5 +1,10 @@
 # iPR
 
+Semester Exam-
+
+![IMG_20220802_190222](https://user-images.githubusercontent.com/93399136/182387651-083a4138-1232-40c8-bb5b-e9b5f3259b44.jpg)
+![IMG_20220802_190242](https://user-images.githubusercontent.com/93399136/182387715-44f7485f-1359-443e-9560-a5c2e561f8a1.jpg)
+
 Syllabus
 
 ![image](https://user-images.githubusercontent.com/59536110/180279967-30640d17-98b9-4429-9588-5f0ea4d83148.png)
